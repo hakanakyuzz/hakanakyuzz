@@ -15,4 +15,4 @@
 
 
 
-![213910842-5a320d6b-e48f-4d41-a901-0e6a357e8dae](https://github.com/hakanakyuzz/hakanakyuzz/assets/132704405/76355378-187d-4b0a-8fa8-aad11d318a76)
+
